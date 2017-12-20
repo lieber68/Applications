@@ -80,6 +80,6 @@
 
 * iA Writer  [官网下载地址](https://itunes.apple.com/us/app/ia-writer/id775737172?mt=8) [网盘下载地址](https://pan.baidu.com/share/init?surl=dE3ibZj) hunw
 
-* Office套装  [官网下载地址](https://products.office.com/zh-CN/compare-all-microsoft-office-products?tab=1) [磁力链接地址](magnet:?xt=urn:btih:ceba602aad758b94185f8e0ff64c783eec015486)  [激活工具](http://pan.baidu.com/s/1dEbGurv) 9yhf
+* Office套装  [官网下载地址](https://products.office.com/zh-CN/compare-all-microsoft-office-products?tab=1) [磁力链接地址](magnet:?xt=urn:btih:ceba602aad758b94185f8e0ff64c783eec015486)  [激活工具](http://pan.baidu.com/s/1dEbGurv) 9yhf `magnet:?xt=urn:btih:ceba602aad758b94185f8e0ff64c783eec015486`
  
 * QQ音乐  [官网下载地址](https://y.qq.com/download/mac.html?part=1&ADTAG=YQQ) [无损音质免费](https://pan.baidu.com/s/1dEJyv1B) afev 
