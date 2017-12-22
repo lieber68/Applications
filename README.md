@@ -64,7 +64,7 @@
 
 * Paste [官网下载地址](https://pasteapp.me) [网盘下载地址](https://pan.baidu.com/share/init?surl=c1N078c) s9ph
 
-* Bartender  [官网下载地址](https://www.macbartender.com) [网盘下载地址](https://pan.baidu.com/s/1bZd3oM ) 474s
+* Bartender  [官网下载地址](https://www.macbartender.com) [网盘下载地址](https://pan.baidu.com/share/init?surl=hrDSFvI) wsyp
 
 * Yoink [官网下载地址](https://eternalstorms.at/yoink/mac/Yoink_for_Mac_-_Simplify_and_Improve_Drag_and_Drop_on_your_Mac/Yoink_for_Mac_-_Simplify_drag_and_drop_on_your_Mac.html) [网盘下载地址](https://pan.baidu.com/share/init?surl=cDEIBW) vabp
 
@@ -85,3 +85,5 @@
 	`magnet:?xt=urn:btih:ceba602aad758b94185f8e0ff64c783eec015486`
  
 * QQ音乐  [官网下载地址](https://y.qq.com/download/mac.html?part=1&ADTAG=YQQ) [无损音质免费](https://pan.baidu.com/s/1dEJyv1B) afev 
+
+* BetterZip [官网下载地址](https://macitbetter.com) [网盘下载地址](https://pan.baidu.com/share/init?surl=hsy8Vg4) v3gv
