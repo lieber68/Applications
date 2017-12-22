@@ -87,3 +87,6 @@
 * QQ音乐  [官网下载地址](https://y.qq.com/download/mac.html?part=1&ADTAG=YQQ) [无损音质免费](https://pan.baidu.com/s/1dEJyv1B) afev 
 
 * BetterZip [官网下载地址](https://macitbetter.com) [网盘下载地址](https://pan.baidu.com/share/init?surl=hsy8Vg4) v3gv
+
+* MWeb [官网下载地址](http://zh.mweb.im) [网盘下载地址](https://pan.baidu.com/s/1kVIM627) nrbs
+
