@@ -90,3 +90,5 @@
 
 * MWeb [官网下载地址](http://zh.mweb.im) [网盘下载地址](https://pan.baidu.com/s/1kVIM627) nrbs
 
+* Xmid [官网下载地址](https://www.xmind.cn/xmind8-pro/) [网盘下载](https://pan.baidu.com/s/1c2pVcac) 6x13
+
