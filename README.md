@@ -70,7 +70,7 @@
 
 * PDF Expert [官网下载地址](https://pdfexpert.com/zh) [网盘下载地址](https://pan.baidu.com/s/1o8mmtAi) 3u7i
 
-* Charles  [官网下载地址](https://www.charlesproxy.com/download/) [网盘下载地址](https://pan.baidu.com/share/init?surl=hsxmC4G) 5kn4
+* Charles  [官网下载地址](https://www.charlesproxy.com/download/) [在线破解](https://www.zzzmode.com/mytools/charles/) [网盘下载地址](https://pan.baidu.com/share/init?surl=hsxmC4G) 5kn4
 
 * iMazing  [官网下载地址](https://imazing.com/zh/download) [网盘下载地址](https://pan.baidu.com/share/init?surl=nu7Cgjf) qyfd 
 
