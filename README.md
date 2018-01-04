@@ -45,6 +45,8 @@
 
 * istat_pro [下载地址](https://pan.baidu.com/s/1nvh4F9Z) 6c7f
 
+* [Microsoft Remote Desktop10](https://pan.baidu.com/s/1c18BS8C) y2n8
+
 ##收费软件
 * Alfred3.0 [官网下载地址](https://cachefly.alfredapp.com/Alfred_3.5.1_883.dmg) [网盘下载地址](https://pan.baidu.com/s/1qXCSTQk) 7xkp
 
