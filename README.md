@@ -98,3 +98,5 @@
 
 * Tower [官网下载地址](https://www.git-tower.com/mac/) [网盘下载地址](https://pan.baidu.com/s/1mhJkHdQ) j3h6
 
+* Quiver [官网下载地址](http://happenapps.com) [网盘下载地址](https://pan.baidu.com/share/init?surl=pMHakn5) bb8x
+
