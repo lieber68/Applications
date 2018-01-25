@@ -56,7 +56,7 @@
 
 * iStat Menus6 [官网下载地址](https://bjango.com/mac/istatmenus/) [网盘下载地址](https://pan.baidu.com/share/init?surl=dEHYRqL) smu2
 
-* Folx Pro [官网下载地址](https://mac.eltima.com/cn/download-manager.html) [网盘下载地址](https://pan.baidu.com/share/init?surl=nvFlFEL) p833
+* Folx Pro [官网下载地址](https://mac.eltima.com/cn/download-manager.html) [网盘下载地址](https://pan.baidu.com/share/init?surl=jJkGGmE) ff66
 
 * 迅雷 [官网下载地址](http://mac.xunlei.com) [网盘下载地址](https://pan.baidu.com/s/1cCti7G) sasv
 
